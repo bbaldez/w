@@ -33,11 +33,11 @@ Vanaf 1920 was Schiphol een burgerluchthaven. In 1924 werd het eigendom van de g
 
 Geen zorg. We gaan niet zwemmen. Het hier gedeeltelijk afgebeelde Haarlemmer Meer -- een bij elke storm verder uitdijende hoeveelheid veenafgravingen tussen Amsterdam, Haarlem en Leiden -- werd halverwege de negentiende eeuw wijselijk drooggelegd.
 
-![](abos_1919.png)
+![](abos_1919.jpg)
 
 Dat ziet er al beter uit. Ik heb de wandeling met de markeerstift aangegeven. Waar die de Ringvaart kruist, ongeveer in het midden van de kaart, stond Fort Schiphol -- een vierkantige uitstulping in de ringvaart. Op het kaartje van het nog vloeibare Haarlemmermeer is het ook al herkenbaar.
 
-![](abos_1923.png)
+![](abos_1923.jpg)
 
 Zoek de verschillen. Ja, ik zie er één! Boer Knibbe heeft in 1916 zijn weiland verkocht aan de Nederlandse overheid. Die heeft er heel optimistisch _Schiphol Luchtvaartterrein_ op geschreven en een paar schuren gebouwd. Geland en opgestegen wordt er in de richting die de piloot het gunstigst lijkt. De ondergrond is grassig en drassig. De Franse aviatiewereld spreekt al snel van "Schiphol-les-Bains"
 
@@ -48,14 +48,14 @@ Zoek de verschillen. Ja, ik zie er één! Boer Knibbe heeft in 1916 zijn weiland
 
 > Schiphol op een zonniger dag. We zien het fort langs de ringvaart en een handvol vliegtuigschuren. Foto uit  1925.
 
-![](abos_1952.png)
+![](abos_1952.jpg)
 
 Tijdsprong. In de Tweede Wereldoorlog wordt Schiphol compleet vernietigd maar in 1945 herrijst het binnen enkele weken. In de jaren 50 liggen er minstens vier serieuze start- en landingsbanen in elk van de acht windrichtingen. Kenners zien hier al vroege versies van de Oostbaan (evenwijdig aan de bebouwing) en in noord-zuidrichting de Aalsmeerbaan, die de westgrens vormt van het luchthaventerrein. Fort Schiphol is gesloopt om plaats te maken voor een brug over de ringvaart. Daar kunnen we dan mooi overheen wandelen. Aan de overzijde is namelijk dankzij de Werkverschaffing van de jaren dertig een wandelgebied genaamd _Amsterdamsche Bos_ gegroeid.
 
-![](abos_1961.png)
+![](abos_1961.jpg)
 1960. In het zuidwesten is de Kaagbaan verschenen. Die wijst naar de  Kager Plassen zoals de Aalsmeerbaan naar Aalsmeer wijst. Kijk nog maar even goed naar Rijksweg 4 waar de Amsterdammer met een slinger om Schiphol heen moet, want die slinger maakt straks plaats voor een nog veel grotere slinger zodat onze wandelroute opeens zinvol lijkt.
 
-![](abos_1969.png)
+![](abos_1969.jpg)
 Ik voorspelde het al. Er is een Buitenveldertbaan aangelegd, ondertunneld door een Schipholtunnel waarin de geheel vernieuwde, nu nóg betere Rijksweg 4 onderdak heeft gevonden. Het is 1967 en alles moet anders. In het westen van Schiphol, omsingeld door Aalsmeer, Kaag- en Buitenveldertbaan, staat een geheel nieuw vliegtuigstation, naar de heersende mode 'passagiersterminal' genoemd.
 
 De westgrens van het vlieggebeuren wordt nu gevormd door de 'Vierde Baan' (Zwanenburgbaan). De Oostbaan is er ook nog maar  wordt door Schiphol buiten de banenstatistiek gehouden.
