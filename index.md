@@ -1,3 +1,3 @@
 # Wandelingen
 
-[Zaan](zaan/)
+[Zaan](zaan.md)
