@@ -182,6 +182,7 @@ Spannend: is het ABN AMRO-hoofdkantoor op de dag van onze wandeling nog steeds h
 
 # Route
 ![](abos_route.jpg)
+
 ||routepunt|hoe ver is het nog?|
 |-|-|-|
 |1|Schiphol Plaza|15 km
