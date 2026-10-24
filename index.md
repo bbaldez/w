@@ -1,2 +1,2 @@
-- [Zaan](zaan.md) ✔
-- [Genesis](abos.md)
+- [Zaan](zaan.md) ✔ - van het Heerenhuis naar het Heerenhuis (15 km)
+- [Genesis](abos.md) - van Schiphol naar de Zuidas (15 km) 

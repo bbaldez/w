@@ -19,6 +19,7 @@ Behalve De Leeghwater pompen nog drie andere gemalen het water de Haarlemmermeer
 
 Na de drooglegging van het Haarlemmermeer werd Amsterdam niet meer bedreigd door het steeds woestere water maar was het ook zijn bescherming tegen vijandelijke legers kwijt. Er werden dus nieuwe forten gebouwd, alle onderdeel van de Stelling van Amsterdam. Het is verleidelijk om Fort Schiphol daar ook toe te rekenen maar dat fort werd al gebouwd toen de Haarlemmermeer nog _het_ Haarlemmermeer was en men doende was de ringdijk met bijbehorende -vaart te graven en op te werpen. Waar een sloot genaamd _Schips Hol_ de vers gegraven ringvaart bereikte, bouwde men een defensieve toren die uitgroeide tot Fort Schiphol. In 1916 landde er, als onderdeel van een militaire oefening, voor het eerst een vliegtuig in de wei. Daarmee werd Schiphol na Soesterberg de tweede luchthaven van Nederland.
 ![](abos_schips_hol.jpg)
+
 > Een sloot genaamd _Schips Hol_. Let ook even op het woord _Mijlpaal_ rechtsboven. Ik ga daar nog op terug komen.
 
 Vanaf 1920 was Schiphol een burgerluchthaven. In 1924 werd het eigendom van de gemeente Amsterdam. In juni 1928 werd het iconische _Stationsgebouw_ opgeleverd. Men had de bedoeling de sporters van de Olympische Spelen Amsterdam in stijl te verwelkomen. Die bleken echter allemaal de voorkeur te geven aan boot of trein met als argument: 'Het is pas 1928. Het luchtvaarttijdperk moet nog aanbreken.'
