@@ -1,5 +1,3 @@
-[menu](index.md)
-# Vragen, vragen, vragen
 ## Welke polder gaan we bewandelen?
 
 De polder die we gaan bewandelen heet _Polder Oostzaan_, administratief ook wel bekend als de _Banne Oostzaan_.

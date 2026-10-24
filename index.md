@@ -1,3 +1,2 @@
-# Wandelingen
-
-[Zaan](zaan.md)
+- [Zaan](zaan.md) ✔
+- [Genesis](abos.md)
